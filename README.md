@@ -1,2 +1,2 @@
 ## L'enfant Josée
-Il était un jour, un enfant appelé Josée. Celui-ci était vraiment très content de sa vie mais malheureusement pour lui, lors de sa promenade matinale habituelle, un énorme monstre avec des griffes acérées lui sauta dessus. Malgré sa grande force il ne put s'échapper, c'est alors que, par miracle, (merci de continuer cette merveilleuse histoire!)
+Il était un jour, un enfant appelé Josée. Celui-ci était vraiment très content de sa vie mais malheureusement pour lui, lors de sa promenade matinale habituelle, un énorme monstre avec des griffes acérées lui sauta dessus. Malgré sa grande force il ne put s'échapper, c'est alors que, par miracle,... (merci de continuer cette merveilleuse histoire!)
