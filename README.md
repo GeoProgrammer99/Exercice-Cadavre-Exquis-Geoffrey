@@ -8,4 +8,7 @@ Le sauvant d'une mort certaine au détriment des 178 vies a bord de l'avion.
 Soudain, contre toute attente, un rescapé sortit des décombres.  
 En effet, un bichon sortit de la soute à bagage.  
 Malheureusement, Josée détestait les chiens, il regarda donc le bichon,  
-s'approcha doucement de lui, le prit dans ses bras et...
+s'approcha doucement de lui, le prit dans ses bras et...  
+l'embrassa. Une longue histoire d'amour débuta  
+Ils décidèrent de se marier et de fonder une famille ensemble.  
+Leur premier enfant s'appella George, croisé humain-animal il fut kidnappé pour effectuer diverses expériences assez glauques.
