@@ -12,3 +12,6 @@ s'approcha doucement de lui, le prit dans ses bras et...
 l'embrassa. Une longue histoire d'amour débuta  
 Ils décidèrent de se marier et de fonder une famille ensemble.  
 Leur premier enfant s'appella George, croisé humain-animal il fut kidnappé pour effectuer diverses expériences assez glauques.
+
+Le vieux sage est né au Japon. Il a 73 ans. Il aime manger des enfants pour nourrir sa sagesse. Il pense que manger le cerveau des enfants lui permettra de s'élever dans le paradis des sages. Ce qu'il ne sait pas, c'est qu'il a fait un pacte avec le DIABLE !
+(ajout bawer)
